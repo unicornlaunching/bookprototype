@@ -1,1 +1,469 @@
-# bookprototype
+**Pitch Anything - Oren Klaff**
+
+- **Solution Diagram**
+  > Each is a diagram that fits into the cohesive whole
+  - **Data**
+    - **The Brain**
+      - crocodile brain
+      - neocortex
+      - How to reach Croc Brain -> Hot & Cold Cognitions
+    - **Status**
+    - **Framing**
+      - frame control
+      - frame collisions
+      - power-busting frame
+    - **Pitching**
+      - Frame Before You Talk About The Details
+        - Set Tone
+        - Frame self in relation to competition
+      - Big Idea Introduction Pattern
+      - Pitch Details VERY selectively
+      - Stacking Frames + Hot Cogs to Create Wanting
+        - Intrigue
+        - Prize
+        - Time, if necessary
+        - Morality
+        - Withdraw to emphasize Prize frame
+  - **Process #diagrammaster**
+    > All the while building status, adding to your frame, then at the last moment, taking the Big Idea away
+    - **They Need ME - I AM THE PRIZE []**
+      > **I don't need these people. They need me. I am the prize. **
+      - **I want nothing. Eliminate your desires. It's not necessary to want things.** Sometimes you have to let them come to you.
+      - **Focus on what you do well. Be excellent in the presence of others.** Show people one thing that you are very good at.
+      - **Announce your intentions to leave the social encounter. Withdraw. At a crucial moment when people are expecting you to come after them, pull away.**
+    - **Grab and Seize Status []**
+      - Sensei
+        > Audit your 5 sense-impression - Sensei - SenseI - SenseImpression
+        - **What are you wearing? []**
+        - **How are you talking? []**
+        - **What is your posture? []**
+        - **How does your breath smell []**
+        - The Sensei feels confident and projects that outward, even though he knows that he's never going to be perfect and doesn't know everything there is to know about his domain of expertise. In fact, somehow, he feels confident even though he understands 90% and doesn't understand 10% - now, he will never understand the final 1%, but he still goes out there because, heck, dunning-kruger - either I do it, or the confident idiots will mess it all up!
+      - Frame Before You Talk About The Details
+        - Set Tone
+        - Frame self in relation to competition
+      - Who is Dominant Alpha?
+    - **Collide Frames and Assume Dominant Alpha Status []**
+      - Similar Frame? Yay! **[]**
+      - Different Frame? No Problem! Have fun playing bumper frames!
+        - **Time Frame []**
+          - Small Defiances of their time process with light humor
+          - Tell the the receptionist you have to go and watch how you get escorted in less than 30 seconds, smiling, saying no worries! We'll talk to him another time.
+        - **Analyst Frame []**
+          - Intrigue Frame via Narrative and light humour
+          - Personal story
+        - **Power Frame []**
+          - Small defiances and light humor
+      - Now that you've begin to set yourself up as the DAl, we're going to make you a neortical DAl by introducing the best idea ever, an idea that only you are the expert in, and only you can implement, and when you've created this wanting [Dopamine (push) + norepinephrine (pull)], you're going to pull away, and by them REALLY wanting the solution, that's how the sale is made. **[]**
+    - **Pitch/Pull Your Amazing Idea to Create Attention/Wanting & Assume Neocortical DAl**
+      - **Local Star Power** 
+        - via Framing conversation towards an area of your expertise
+        - Intermediate level of complex, novel information
+        - Confirm status by asking them rhetorical questions
+          > confirm your alpha status by making your competition, who now occupies a beta position, make a statement that qualifies your higher status
+        - Narrative - Don't finish your story - put a man in a jungle - have him get attacked by beasts - will he survive? - don't tell them - 
+          > https://www.dropbox.com/s/wo0gem17w52l4zc/Pitch%20Anything%20-%20Secrets%20to%20Storytelling.pdf?dl=0
+        - the beasts and his story of survival is rooted in the man overcoming something by doing something physically over time - Where we seek to understand reality from events in terms of human actors striving to do physical things over time.
+      - **Three-market Theory & Big Idea Introduction Pattern | 6 Human Needs ****
+        - You're in a tough spot. You have feature deadlines AND you're trying to assemble a team at the same time. Plus, it's a headache and a half to find good people. I'd like...
+      - **Frame-Stacking w/Hot (Emotional Cogs)**
+        - Intrigue
+        - Prize
+        - Time 
+        - Morality
+    - **Pull Away**
+      - via Qualification Questions
+- **Solution Diagram**
+  > Each is a diagram that fits into the cohesive whole
+  - **Data**
+    - **The Brain consist of**
+      - Crocodile brain
+      - Neocortex
+      - we make decisions emotionally and rationalize them logically therefore; How to reach Croc Brain -> Hot (Emotional) & Cold (Analytical) Cognitions - in that order
+    - **Status**
+    - **Framing**
+      - frame control
+      - frame collisions
+      - power-busting frame
+    - **Pitching**
+      - Frame Before You Talk About The Details
+        - Set Tone
+        - Frame self in relation to competition
+      - Big Idea Introduction Pattern
+      - Pitch Details VERY selectively
+      - Stacking Frames + Hot Cogs to Create Wanting
+        - Intrigue
+        - Prize
+        - Time, if necessary
+        - Morality
+        - Withdraw to emphasize Prize frame
+  - **Process **
+    > All the while building status, adding to your frame, then at the last moment, taking the Big Idea away
+    - **They Need ME - I AM THE PRIZE []**
+      > **I don't need these people. They need me. I am the prize. (but he's pitching people everyday)**
+      - **I want nothing. Eliminate your desires. It's not necessary to want things.** Sometimes you have to let them come to you.
+      - **Focus on what you do well. Be excellent in the presence of others.** Show people one thing that you are very good at.
+      - **Announce your intentions to leave the social encounter. Withdraw. At a crucial moment when people are expecting you to come after them, pull away.**
+    - **Grab and Seize Status []**
+      - Sensei
+        > Audit your 5 sense-impression - Sensei - SenseI - SenseImpression
+        - **What are you wearing? []**
+        - **How are you talking? []**
+        - **What is your posture? []**
+        - **How does your breath smell []**
+        - The Sensei feels confident and projects that outward, even though he knows that he's never going to be perfect and doesn't know everything there is to know about his domain of expertise. In fact, somehow, he feels confident even though he understands 90% and doesn't understand 10% - now, he will never understand the final 1%, but he still goes out there because, heck, dunning-kruger - either I do it, or the confident idiots will mess it all up!
+      - **Frame Before You Talk About The Details**
+        - Set Tone
+        - Frame self in relation to competition
+      - Who is Dominant Alpha?
+    - **Collide Frames and Assume Dominant Alpha Status []**
+      - Similar Frame? Yay! **[]**
+      - Different Frame? No Problem! Have fun playing bumper frames!
+        - **Time Frame []**
+          - Small Defiances of their time process with light humor
+          - Tell the the receptionist you have to go and watch how you get escorted in less than 30 seconds, smiling, saying no worries! We'll talk to him another time.
+        - **Analyst Frame []**
+          - Intrigue Frame via Narrative and light humour
+          - Personal story
+        - **Power Frame []**
+          - Small defiances and light humor
+      - Now that you've begin to set yourself up as the DAl, we're going to make you a neortical DAl by introducing the best idea ever, an idea that only you are the expert in, and only you can implement, and when you've created this wanting [Dopamine (push) + norepinephrine (pull)], you're going to pull away, and by them REALLY wanting the solution, that's how the sale is made. **[]**
+    - **Pitch/Pull Your Amazing Idea to Create Attention/Wanting & Assume Neocortical DAl**
+      - **Local Star Power** 
+        - via Framing conversation towards an area of your expertise
+        - Intermediate level of complex, novel information
+        - Confirm status by asking them rhetorical questions
+          > confirm your alpha status by making your competition, who now occupies a beta position, make a statement that qualifies your higher status
+        - Narrative - Don't finish your story - put a man in a jungle - have him get attacked by beasts - will he survive? - don't tell them - 
+          > https://www.dropbox.com/s/wo0gem17w52l4zc/Pitch%20Anything%20-%20Secrets%20to%20Storytelling.pdf?dl=0
+        - the beasts and his story of survival is rooted in the man overcoming something by doing something physically over time - Where we seek to understand reality from events in terms of human actors striving to do physical things over time.
+      - **Three-market Theory & Big Idea Introduction Pattern | 6 Human Needs ****
+        - You're in a tough spot. You have feature deadlines AND you're trying to assemble a team at the same time. Plus, it's a headache and a half to find good people. I'd like...
+      - **Frame-Stacking w/Hot (Emotional Cogs)**
+        - Intrigue
+        - Prize
+        - Time 
+        - Morality
+    - **Pull Away**
+      - via Qualification Questions
+    - Sandbox
+- Create a mathematical formula based on algebra
+- Notes Repository
+  - Eradicate Needines
+  - Grab Status
+    - Overview
+      > Main diagram is showing how to react to situations in order to achieve situational status - must ask yourself what is your domain of expertise such that you can develop local star power in relation to your customer. What are you the expert in that they aren't?
+      - Status decisions are made by **Brain** within seconds of you entering the room
+      - Create High status ASAP - to the high-status alpha go the spoils Do not hesitate. Choose a frame, force a collision at the most opportune moment, and do not hesitate. Idle social banter diminishes status.
+      - Confident, smiling tone, defiantly humorous via eradicated neediness
+      - **Neediness will kill the entire process, especially status; a needy Golf pro will not instruct a CEO well.**
+      - Have fun be popular and enjoy your work
+      - **Your position in the social hierarchy is an artificial measure of your worth to others. **
+      - **Our position on the social hierarchy is not locked in place.**
+      - But when a golf pro beings instructing a CEO, situational status takes over. You can do a role-reversal by redirecting the conversation into a domain where you're in charge. 
+      - When you enter a room, we're trying to figure out who the Dominant Alpha is. 
+      - **We will follow a jaywalker in a suit**
+      - Need Situational Status - a la Golf Expert speaking with President
+      - You are the Golf Expert when talking about talent
+      - continue to accumulate status throughout the entire process #diagram 
+      - **Once attention captured, shift to acquiring Local Start Power and therefore Alpha Status**
+      - Local Star Power via Candidate and their X-Men Abilities
+      - Even more LSP - hard work, domain expertise, and moral authority 
+      - Getting Situational Status - Process 
+        - Ignore power rituals and avoid beta traps
+        - be unaffected by customers global status (their status inside and out)
+        - Look for opportunities to perpetrate small denials and defiances to strengthen frame and enhance status
+        - As soon as you take power, quickly move the discussion into an area where you are the domain expert, where your knowledge and info are unassailable by your audience 
+        - Apply a prize frame by positioning yourself as the reward for making the decision to do business with you
+        - confirm your alpha status by making your competition, who now occupies a beta position, amek a statement that qualifies your higher status (i.e. remind me in the world why in the world I'd want to do business with you?' Have you ever made a hiring decision outside of normal company policy when you felt it was the right thing to do?)
+    - Intrigue stories/ways to disrupt power **
+  - Frame Control
+    > Reality isn't waiting to be discovered; it's waiting to be FRAMED.
+    - **How to Frame Control #diagram**
+      > Quick Frame Assessment - who's reacting to who?
+      - Need nothing
+      - Recognize Frame
+      - Choose correct Frame Response
+      - Reframe
+        > people will fight to control frame
+      - Plow ahead
+    - **Financially Independent Frame**
+      - We need because we want what they have. We need because we want the cooperation of the target. They become uncooperative; anxiety sets in. If you need the target to accept you, you've trapped yourself. 
+      - WE believe that when we we need something from another person, there is a thin line of empathy that runs through their hearts.
+      - If the target seems uninterested, begins to withdraw, or shifts his attention to something else; NATURAL fear response because you want something from them - an INVOLUTNARY expression of neediness; that's your croc brain reacting
+      - Self-protection is an unconscious reaction that comes from the crocodile brain.
+      - Neediness -> Br feel fear/uncertainty therefore prevents higher level functioning
+      - We over come this using the Financially Independent Mindset
+        > **I don't need these people. They need me. I am the prize. (but he's pitching people everyday)**
+        - I want nothing. Eliminate your desires. It's not necessary to want things. Sometimes you have to let them come to you.
+        - Focus on what you do well. Be excellent in the presence of others. Show people one thing that you are very good at.
+        - Announce your intentions to leave the social encounter. Withdraw. At a crucial moment when people are expecting you to come after them, pull away.
+      - best developers are the ones that give recommendations or have received them
+      - The willingness to withdraw demonstrates a self-control, strength, and confidence that most targets will greatly admire.
+      - Pitch Finished? Withdraw. Insecurity Banished, Prizing Triggered, they come to you. We move toward that which moves away from us.
+      - It's never do or die. The king of the world moment when we close a deal!! < - **you put a smiley comment on this because it speak to your speaks to my croc brain by articulating what's in my heart TO MY HEART ** ** ****
+      - **I like the adrenaline rush that comes from playing this game.**
+      - **I need people to react in the correct way so that I can improve my game. I need people to be THEMSELVES.**
+      - While Chance was probably doing tons of research of Jefferies, I did none. I was not interested in building so-called deep rapport with the person. Small talk is fruitless. Focus on a universal theme and storyline. a Compelling HUMAN drama. But, if you can use small talk to understand what they care about, then you can have an easy way to transition into your narrative and poof! Intrigue -> Local Star Power 
+      - Do the Mark pitch without mentioning Mark's name.
+    - **Weak Frames**
+      - Running long
+      - Running beyond attention
+    - **Power Frame**
+      - Small defiance + Light Humor
+      - Develop local star power
+      - Give/take
+    - **Analyst Frame**
+      - Cold Cog-focused
+      - Reframe with Hot Cog (incomplete narrative)
+      - Continue with pitch
+      - Analyst entertained by puzzles
+      - Questions they're asking: Have I solved this beofre?
+      - Analyst Frame (Cold Cog) -> Intrigue Frame (Hot Cog) via narrative but leave ending out
+      - ** what are you narratives - how to follow your dreams
+    - Frame-Stacking to create wanting
+      - Intrigue Frame
+        > Hot Cognition #1
+        - Goal = dopamine (half of the attention chemical) dump into their croc brain + build desire + something target wants | can't get right now
+        - Narrative
+          - The use of narrative and leaving out the end will access their croc brain and get them out of cold cog; they can't do both at the same time
+          - Where we seek to understand reality from events in terms of human actors striving to do physical things over time.
+          - It's not about what happened. What's important is who it happened to and how the characters reacted to their situation.
+          - Who is this mystery man, Joshua, and how do we meet him? This works because it's not about what happened. That's actually a boring story. **What's important is who it happened to and ho wthe character reacted to their situation. Nobody cares about narratives where you witnessed something. They want to see someone forced into action and positively overcoming obstacles. This new notion of building an intrigue frame maeks a lot of sense when you think about why the target is stting there listening to your itch. in narrative mode, we seek to understand reality from events in terms of human actors striving to do physical things over time.** Your big idea is much too abstract. Target's brain doesn't like abstract ideas - very abstract idea has to be kicked up to the neocortex to be worked on, slowly and painstakingly. **
+          - We are autonomous applications whose AI can modify it's code but cannot modify it's fundamental circuity/hardware...yet.
+          - Analyst Frame? Intrigue Frame (takes them out of the cold cog)
+          - Your big idea is too abstract for the reptilian brain, and your brain is a cognitive miser that resist sending things to the neocortex
+          - Story about people and their challenges/dragons you and they slayed. P 140 2nd paragraph. **
+          - **Croc brain sees human characters confronting real obstacles in time scales that make sense. A narrative that feels correct in time will convey a strong sense of truth/acuracy. ****
+          - Facts/Figures = paradigmatic view of world = not what we want
+          - Short/strong narratives introducing characters who are overcoming real-world obstacles can ignite hot cognitions ** 
+          - Narrative pattern for Intrigue Frame **
+            - put a man in a jungle
+            - have beasts attack him (conflict/tension)
+            - Will he get to safety
+            - Hold man just shy of safety to hold interest
+          - Events are not important - extreme story in terms of the tension of characters emotional experience
+          - Drive/tenacity/confidence
+          - What do you do?
+            - I think we do a terrible job at managing our own lives, and I believe it starts with the way that we manage our careers.
+            - When people ask themselves what they want to do next, they look at what they do now, and they either try to do it more or manage people who do it.
+            - Three years ago, I decided that I wanted to do stand-up full-time. 
+            - So, I decided to dedicate myself to the one thing that I was any good at: recruiting. I figured if I figured out how to get my own clients, I could have a mobile office and become a digital nomad, tour North America!
+            - I figured it would take me four months. Took me three years.
+            - Married the wrong person, developed a tumor on my head, but now I'm living the dream. But I'm living MY dream.
+            - I'm living MY dream because, at least where my career is concerned, I did what Stevey Covey said: I began with end in mind.
+            - That's what I help my candidate family visualize, and most importantly, realize. 
+            - Life is too short to get kinda sorta what you want out of life. I'm not saying you should change jobs - I'm saying you need to understand what brings you joy, and design a life around that.
+            - now, I can't tell what the market is going to be like in two years, but I can tell you that the next two years of their career requires the following: 
+              - a
+              - b
+              - c
+            - Do you have those things? If so, my candidate brings x y z.
+          - Narrative notes
+            - Engages audience through psychological realism - recognize emotions and believable interactions among characters.
+            - Captivate audience whose emotions can be inextricably tied to those of the story's characters; this immersion is narrative transport
+            -  prior knowledge and life experience affected the immersive experience - depending on what aspect of the story we identify with, we interpret the story different
+            - People who perform better on empathy tests become more easily transported. Empathy allows us to attribute mental states - awareness/intent - to other entities. Theory of mind.
+            - I lost a lot of weight recently, and by that I mean I got a divorce.
+            -  “Familiarity helps, and a character to identify with helps,”
+            - if you have a setback; take a break, recoup, and then do work that's easier 
+            -  “There seems to be a reasonable amount of variation, all the way up to people who can get swept away by a Hallmark commercial,”
+            - Leveraging theory of mind - show that the cdte mimicked some of the struggles they have
+            - ToM is so powerful we anthropomorphize.
+            - stories are an important tool for learning and for developing relationships with others in one's social group
+            - social topics = 65% of speaking time
+            - Keith Oatley - Prof Applied Cog Psych. - interview
+            - if you're training to be a pilot, you spend time in a flight simulator.
+            - Stories may act as flight simulators for social life. Oatley and Mar research
+            - students who had more exposure to fiction tended to perform better on social ability and empathy tests. is it that it has a cause, or maybe socially inclined individuals simply seek out more narrative fiction
+            - make them imagine the scenario actually happening - make it REAL
+            - Literary Darwinists propose that stories from around the world have universal themes reflecting our common underlying biology.
+            - Themes
+              - depictions
+                - strong male
+                - beautiful female
+                - reproductive health in women, signified by youth and beauty
+                - desirable male ability to provide for a family, signaled by physical power and success.
+              - Other common narrative themes reveal our basic wants and needs. “Narrative involves agents pursuing some goal,” says Patrick Colm Hogan, professor of English and comparative literature at the University of Connecticut. “The standard goals are partially a result of how our emotion systems are set up.” 
+              - these are narrative records of basic needs: food, reproduction, and social status
+                - romantic scenarios (trials and travails of love), heroic scenarios (power struggles)
+                - agrarian plenty vs famine
+                - societal redemption
+            - stories reveal something about human emotions seated in the mind.
+            -  test audience responded more positively to advertisements in narrative form as compared with straightforward ads that encouraged viewers to think about the arguments for a product. Similarly, Green co-authored a 2006 study that showed that labeling information as “fact” increased critical analysis, whereas labeling information as “fiction” had the opposite effect. Studies such as these suggest people accept ideas more readily when their minds are in story mode as opposed to when they are in an analytical mind-set.
+      - **Prize Frame**
+        > Hot Cognition #2
+        - Test: who's trying to win who? **
+        - He is the commodity - you are the prize 
+        - Prize Frame -> curiosity/desire via Qualifying them (why should I work with you?)  **
+        - we move towards that which moves away from us  **
+        - Their $ needs you!  **
+        - Chase me win my attention  **
+        - signals to Br that you're STRONG, not just any need person  **
+        - You are a friend. You are a fiend. Doesn't matter what's said, but how it's said (affection vs. contempt) - prize yourself with a smile **
+        - I am the prize
+        - You are trying to impress me.
+        - You are trying to win my approval
+        - RELIES ON CONVICTION
+        - Don't let others steal your ideas and profit from them. You must be at the helm in title or otherwise.
+        - Rilke's readings are next
+      - Time Frame
+        > Hot Cognition #3
+        - Guys, nobody likes time pressure. I don't like it, and you don't like it. No one does. But good people with strong fundamentals are like a train; and they don't stay at the station long. I can't control who's calling him, but we can control when he stops taking calls if it's in our best interest. **
+        - If you can't begin a process that would lead to an offer in the next 3 weeks, we'll lose him as a candidate. Of course, you have plenty of time to decide if you like me - and if you want this candidate, and, if he falls in love as much as I think he might, he might even stop interviewing with his other suitors. **
+      - Moral Authority Frame
+        > Hot Cognition #4
+        - Until a wanting evaluation is in the target's Br, you'll be ignored. ** ****
+        - **My candidates are not candidates, they're friends, people I've had hour-long coffees with, watched sunsets with, even dinner at a bar watching the game with. ****
+        - **This particular friend is looking for two things: interesting problems that require problems of scaling/big data/UX, and outstanding mentors. I would like to introduce you to if he can find these two things with your firm - can he?****
+        - **It's a mixing of push and pull intra-frame! ****
+        - $ isn't critical; people are. ** ****
+        - Hot Cogs - primal, unavoidable, instant, and enduring; Chocolate (bad) vs. Spinach (good)
+        - Focus on getting the Br to like the product.
+        - Hot cognitions = Inner certainty via feeling = occur instantly
+        - Tony Robbins 6 Human Needs: Certainty, Uncertainty, Growth, Contribution, Novelty, Significance ** ****
+        - Hot Cognitions encode value. It's the anticipation of a large financial gain that is compelling to the target. The receiving isn't nearly as exciting.
+        - Frame-stacking + Hot Cognitions
+          > PRODUCES WANTING
+    - Elements of the Pitch 
+      - Eradicate Neediness
+      - Grab Status
+      - Frame control
+      - Set tone of meeting.
+      - Frame opportunity in relation to competition.
+      - Entice 6 Human Needs
+      - Made him a social hero - more powerful than money via imagery  **
+      - Visual porn **
+      - Local * power by bringing them into your domain
+      - Push/Pull
+      - Big Idea Problem Solution Special advantage offer deal stack frames for HC  - framing around local star power means you get to decide that your secret sauce saves the day, not the competitions **
+      - withdraw
+      - Heightened state of emotions means strong memories **
+      - what are my main narratives **
+  - Hot & Cold Cognitions
+    - hot cog - reptilian-driven
+    - Cold cog - neocortically-driven
+    - cannot exist simultaneously
+  - The Pitch
+    - **Solution Constraints**
+      - New Idea emerging out of current market opportunities
+      - Your pitch comes from the unique recognizing and seizing of such an opportunity
+      - YOU're the expert (local * power via situational status)
+    - **Three Market Forces**
+      - **Major**
+        - Financial/Economic
+        - Sociocultural
+        - Technological
+      - **Minor**
+        - Geographical
+        - Competitive
+        - Political / Legal / Regulatory 
+    - Genesis of the idea, evolution, opportunity you saw p.100-101 **
+    - Success is inevitable given top 3 forces
+    - Movement of the idea **
+      - your brain grows accustomed to things that are not changing, and they effectively vanish from sight.  **
+      - You cannot show audience members 2 possible states and hope the differences catches their eye.  **
+      - NI in old deals; they wanna see movement!  **
+    - Minimizing threat response
+      - p105 ** pitch method - minimize threat/dangers
+      - Social threats engage the same threat-response system in the brain as physical threats do  **
+      - If the target senses anxiety, it will trigger fear in them, and your brain can trigger threat responses far ahead of when you consciously become aware of the threat.  **
+    - 5 Minutes
+      - t, successes, market forces, idea moving from older market to newer Idea intro pattern
+      - Idea intro pattern
+        - Decision of wanting something are not conscious  **
+        - The opportunity to gain a social reward, such as becoming a hero, is even more enticing than making money
+        - Moving Idea
+        - How to create desire? Flood the target's brain with dopamine by focusing on  **
+          - idea of social rewards  **
+          - idea of becoming a hero  **
+          - the idea of making a lot of money  **
+          - P.194; difference creates novelty; also dopamine inducing  **
+        - Your strength is from the ONE PERSON YOU HAVE RIGHT NOW
+        - For target customers who are dissatisfied with [the current offerings in the market]. My idea/product is a [new idea or product category] that proves [key problem/solution features]. Unlike [the competing product]. My idea/product is [describe key features]. **
+          - For _________________________ who are dissatisfied with __________________________. 
+          - [Saf.AI](http://saf.ai/) is a ___________________________ that proves _________________________.
+          - Unlike ___________________________, [Saf.AI](http://saf.ai/) __________________________________
+          - For businesses who are dissatisfied with the protection that their data has against corruption, theft, or loss, [Saf.AI](http://saf.ai/) is a new approach to data resilience that starts with the assumption that hackers are already in the system, human beings can make mistakes, and proves that that's OK. Unlike the status quo solutions that try to stop the bad guys from coming in, [Saf.](http://saf.ai/)AI enables your data to protect itself from the actions of those bad guys.
+          - 
+    - The opportunity to scare the croc brain multiply when you start to explain how stuff works. Theory of Mind - ability to understand how thoughts, desires, and intentions of others cause them to act.  **
+    - When describing relationships between two people, you can provide a lot of detail.
+    - The brain is a cognitive miser - help it understand things and not become fearful  **
+    - The Genius of SFV is not allowing people to play the computer. This way, you have to play online. So, you play to your base, and then you get everyone else to come along with you, because who's gonna think that you're not gonna have the same mode as before? It's Behaviour Modification via User Experience Design/Control. It's technology subverted.  ** for book
+  - #Diagram  **
+    - Financial Independence Mindset - you're now talking in the realm of pure ideas as it relates to headhunting, which is your specialty.
+    - **Prepitch**
+      - Get the tone right, frame myself as the alpha (l*P via this is about who has the best idea, a human idea, at that!), seize status, and hit their hot buttons
+      - Deploy a big idea that is human and captures the theme of 'building a legacy' (growth/significance)
+      - Keep it captivating with visuals that resonate.
+      - Create hot cognitions. Make Jefferies and the committee want the idea before they even know the details.
+    - **Beginning**
+      - Analyst Frame? Intrigue Frame (Incomplete story)
+      - Power Frame? Small defiances/humor; local * power by focusing on what you want
+      - Time? Reduce your's.
+    - Address competition/Secret Sauce to your Success
+    - Three-factor economic outlook that sets the stage for the 
+    - Big Idea introduction pattern that shows MOVEMENT. How was it, how is it, and how is it that it's opened up a window for us
+    - Unique idea gets you the dopamine
+    - We are going to set out sights high, to literally become heroes by protecting - not destroying - a piece of aviation history and get $1B at the same time; 
+    - The details of the deal is laid out as quick as possible
+    - Our idea is big - and we can debate percentage points, but if you're more interested in 16% vs. 17%, then  I'm okay with the fact that we might not be the best fit, and that you aren't interested in the white glove service I provide.  I'm not trying to replace who you use. I'm trying to take advantage of market factors. I don't even want to be added to your VOR.
+    - push/pull used throughout
+    - The slightest perception that you are taking away free will (scientsits call this reducing the autonomy of choice) will trigger a threat respoinse.
+  - Attention via Push/Pull (Intrigue/Prize) - always coming and leaving
+    - Given when information novelty is high - but keep in mind that the brain is a cognitive miser
+    - Attention consists of  **
+      - Dopamine - triggered when there's a potential for reward  **
+      - Norepinephrine - triggered when there's tension  **
+    - If someone is curious, open-minded, and interested? Dopamine. Novel events? dopamine.
+    - You can create novelty by violating the target's expectation in a pleasurable way.  **
+    - Getting what's expected - No dopamine. Unexpected gain - dopamine kick
+    - Reward unmaterialized = negative feeling
+    - Intermediate level of intelligent complexity
+    - People are curous about things they cannot explain but seem explicable  **
+    - Target feels he knows enough to understand idea - sales pitch over
+    - novel information
+      - Retreat OR
+      - Exploration (curiosity) - Step 1 to satisfying intelligent expert
+      - Something new to be discovered? Dopamine  **
+      - E(Reward) triggers Dopamine = curiosity, interest desire via novel idea pitch well  **
+    - Tension = introduction of real consequence to the social encounter (i.e. gain/loss)  **
+    - norepinephrine is the chemical of alertness  **
+    - No stakes? No attention  **
+    - Push and pull to hold attention
+    - In narrative/frame-based pitching, you can't be afraid of tension. In fact, you have to create it.  **
+    - Low/med/high = p.119  **
+    - **Push | Pause | Pull = tension/alertness **
+    - Pitch = series of tension loops  **
+    - Overpulling = needy  **
+    - fear and anxiety set in after 20 minutes - it's when the dopamine and norepinephrine response can't be controlled as well
+    - **Core pitch = bic picutre, high contrast, visual, novel, verified evidence ** **
+    - What we need is a way to present info w/o people getting too analytical
+    - Skill at budgeting
+    - Competition - who does the idea compete with? How easy is it for the competition to follow suit? How easy is it for the customer to switch?
+    - **Secret Sauce - the unfair advantage that you have over others - I develop personal relationships with these people. ** **
+    - Offer deal
+      - what will you receive by doing business with me
+      - brief but rich in detail
+    - we make decisions with **B**R and rationalize then **B**NC  **
+    - Our reptilian brain makes decision and our neocortex, following suit, rationalizes the 'choice.'  **
+    - Perfect pitch p 134/135 ** 
+  - **Set Tone ** **
+    - ** - happy and free-flowing is your domain - pick a frame that speaks to your secret sauce (i.e. best idea frame); let's not focus on size, but on ideas; plants seed for Local star power later on; reframe size as disadvantage ** **
+    - This is what the meeting is going to be focused on (our responsibility) 
+    - it's not going to be a discussion about this, but of THIS  **
+    - Sets stage for Local Star Power, which you'll need if you're going to be seen as someone influential  **
+    - The best idea frame he used here  **
+  - Misc
+    - People won't do what you tell them to do. They must feel as if they have free will to make their own decisions.  ** - ask them to make the choice at the end? You ask one closing question, and trial closes are eschewed for problem-framing 
+    - Challenge = attention if done correctly
+    - push/pull
+    - prizing 
+    - Entice 6 human needs (i.e. help see goal achievement of growth/significance; more powerful than money)
+    - Visual Porn
+    - Local * power by bringing them into your domain
+    - Big Idea Problem Solution Special advantage offer deal stack frames for HC 
+    - withdraw
+    - Heightened state of emotions means strong memories  **
+    - what are my main narratives **
+    - heightened states of emotion create strong memories. Emotions are how we encode things of value and how we linke events to our memory. Emotional intensity creates a moment where attention is high and encoding is high and where desire can be reached.
